@@ -1,4 +1,6 @@
-For most of my life, I was indi!erent towards math – towards all of my classes, really. In each, I saw my friends (fun), and in each, I had to do homework (blah). End of story. 
+# Megan Balparda
+
+For most of my life, I was indiferent towards math – towards all of my classes, really. In each, I saw my friends (fun), and in each, I had to do homework (blah). End of story. 
 
 Then, in middle school, we spent a month going over and over what an equals sign meant. I was outraged! I think anyone would be. I was so bored, and so angry. Simultaneously, I was taking a separate math class where we were learning probability. I don’t like probability either. It feels made up. All this to say, I went from ‘indi!erent’ to ‘passionately against’ pretty quickly. But math rebounded for me in high school. I had a great, weird teacher in my freshman year. He asked us questions about building statues out of butter, and surrounding them with ponds full of frogs. The thing is, I don’t even remember the math we used to answer that. That was never really the point – he taught us how to think. 
 
